@@ -1,4 +1,4 @@
-Abdurasul.ga saytining ochiq manbaa kodi.
+<b>Abdurasul.ga saytining ochiq manbaa kodi.</b>
 
 Saytdagi barcha ma'lumotlar tutorials.uz saytidan olingan.
 
